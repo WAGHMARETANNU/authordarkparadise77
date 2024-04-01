@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @authordarkparadise77
+- 👋 Hi, I’m Waghmare Tannu
 - 👀 I’m interested in writing books and working on various projects using potential programming languages
 - 🌱 I’m currently pursuing b.tech in computer engineering
 - 📫 mail : tannuwaghmare15@gmail.com
